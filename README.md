@@ -1,4 +1,4 @@
-# Laughing Man | 笑脸人
+# Laughing Man | 笑脸男
 
 [English](#english) | [中文](#中文)
 
